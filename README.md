@@ -1,1 +1,0 @@
-# denemejmu5diq
